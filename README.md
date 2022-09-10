@@ -7,7 +7,7 @@ Figma: https://lnkd.in/dxD-CXd5
 
 Site hospedado: https://lnkd.in/dPRBMspb
 
-##Redes do Science Tech: 
+## Redes do Science Tech: 
 
 Instagram: https://lnkd.in/dvizHR4J
 
